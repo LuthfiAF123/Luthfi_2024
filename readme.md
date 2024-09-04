@@ -1,2 +1,2 @@
 #belajar git dulu
-jxgdfhsdvhsdvjhsvfshfjd
+jxgdfhsdvhsdvjhsvfshfjdwg
